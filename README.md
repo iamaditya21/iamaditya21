@@ -17,7 +17,7 @@
 - 
 - 📫 know about me [porfolio_site](https://portfolio-adi-nitb.vercel.app/)
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1cDWTXlxlScl9e12zfY4wh3TQ23evnJ6-/view](https://drive.google.com/file/d/1cDWTXlxlScl9e12zfY4wh3TQ23evnJ6-/view)
+- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/1KT06AdtV38bs0zRcxq1WErRZcYTjhh7I/view?usp=sharing)
 
 - ⚡ Fun fact **Nothing to be funny!**
 
